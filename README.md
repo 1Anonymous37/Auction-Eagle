@@ -3,7 +3,7 @@ Auction Eagle is the best Auction Sniping or Flipping mod made for Hypixel Skybl
 
 -----------------------------------------------------------------------
 
-Discord: ([url](https://discord.gg/3wVKjCYG))
+Discord: ([Join Here!](https://discord.gg/3wVKjCYG))
 
 -----------------------------------------------------------------------
 
